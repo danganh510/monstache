@@ -1,0 +1,1 @@
+https://viblo.asia/p/huong-dan-dong-bo-du-lieu-tu-mongodb-sang-elasticsearch-bang-monstache-gDVK2O4XZLj
